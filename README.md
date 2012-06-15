@@ -15,3 +15,5 @@ prova
 
 
 diomerdosocan
+
+Qualcuno è gay?
